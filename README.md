@@ -1,1 +1,1 @@
-# IMT2200-SERGIO-HERNANDEZ
+# Sergio Andrés Hernández Salgado
